@@ -1,4 +1,4 @@
-${{\color{#F7F1F3}\texttt{" PASTA! — Veneziano  " — 　Helloo!! 　,  I love hetalia so so soo much and I love mell soo much!‎ㆍωㆍ }}}$ 
+${{\color{#F7F1F3}\texttt{" PASTA! — Veneziano  " — 　Helloo!! 　,  I love hetalia so so soo much and I love mell soo much! #platonicqueerfriendship‎ㆍωㆍ }}}$ 
 
 <p align="center"><img width="210" src="https://i.pinimg.com/736x/84/6a/bd/846abdf980f1e6c94f8fd7a3fc498b6e.jpg" align="right" width="210" height="150" /></p>
 
