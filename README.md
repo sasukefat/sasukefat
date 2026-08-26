@@ -2,7 +2,7 @@ ${{\color{#F7F1F3}\texttt{" PASTA! — Veneziano  " — 　Helloo!! 　,  I love
 
 <p align="center"><img width="210" src="https://i.pinimg.com/736x/84/6a/bd/846abdf980f1e6c94f8fd7a3fc498b6e.jpg" align="right" width="210" height="150" /></p>
 
-${{\color{#F9F0F1}\texttt{" In⠀this⠀world…⠀It’s⠀Heaven⠀when:⠀The⠀French⠀are⠀chefs… "}}}$
+${{\color{#F9F0F1}\texttt{" In⠀this⠀world…⠀It’s⠀heaven⠀when:⠀The⠀French⠀are⠀chefs… "}}}$
 ${{\color{#DCB7C7}\texttt{ " It’s⠀hell⠀when:⠀The⠀English⠀are⠀chefs…” — Hidekaz⠀Himaruya!?!⠀(`皿 ‘)⠀}}}$
 
   <p align="center">
