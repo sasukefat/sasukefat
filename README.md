@@ -7,7 +7,7 @@ ${{\color{#F9F0F1}\texttt{" In⠀this⠀world…⠀It’s⠀heaven⠀when:⠀The
 ${{\color{#F6D4DF}\texttt{ " It’s⠀hell⠀when:⠀The⠀English⠀are⠀chefs…” — Hidekaz⠀Himaruya!?!⠀(`皿 ‘)⠀}}}$
 
   <p align="center">
-<img src="https://i.pinimg.com/736x/56/86/64/568664e70dfbf446e0a9bdc3d37b4fe3.jpg"width="445" height="200" />  ${{\color{#F6D4DF}\texttt{ "Im so awesome! I'm awesome! — Gilbert }}}$
+<img src="https://i.pinimg.com/736x/56/86/64/568664e70dfbf446e0a9bdc3d37b4fe3.jpg"width="445" height="200" />  ${{\color{#F6D4DF}\texttt{ "my milkshake brings all the boys! — Gilbert }}}$
 
 ${{\color{#F7F1F3}\texttt{"Alfred F. Jones is soooo cuteeuhh (fat) — I'm a teen! — Filipino n Chinese..! fem ( ᐡづ ᆺ◝ᐡ)"}}}$
 ${{\color{#DCB7C7}\texttt{if you ever want to talk w me plss add me on discord! " sasukeiai.kei "}}}$
