@@ -9,7 +9,8 @@ ${{\color{#DCB7C7}\texttt{ " It’s⠀hell⠀when:⠀The⠀English⠀are⠀chefs
 <img src="https://i.pinimg.com/736x/56/86/64/568664e70dfbf446e0a9bdc3d37b4fe3.jpg"width="445" height="200" />
 
 ${{\color{#F7F1F3}\texttt{"alfred f. jones is soooo cuteeuhh (fat) — lovino is a tsundere — prumano for lifee..! and sealand is js a cute lil baby ( ᐡづ ᆺ◝ᐡ)"}}}$
-
+${{\color{#DCB7C7}\texttt{"if you ever want to talk w me (which I tots enc) plss add me on discord!!: sasukeiai.kei "}}}$
+  
   <p align="left">
 <img src="https://i.pinimg.com/736x/33/5c/7f/335c7fc34d7fc572887c5a3b549edb84.jpg"width="215" height="100" />
 
