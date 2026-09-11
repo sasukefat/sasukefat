@@ -13,7 +13,7 @@ ${{\color{#F7F1F3}\texttt{"Alfred F. Jones is soooo cuteeuhh (fat) — I'm a tee
 ${{\color{#DCB7C7}\texttt{if you ever want to talk w me plss add me on discord! " sasukeiai.kei "}}}$
   
   <p align="left">  
-<img src="https://media.discordapp.net/attachments/1533261802173894857/1542280562448932944/blur_edges_3.png?ex=6a90a834&is=6a8f56b4&hm=ba3d5b9c16017d0ecd2544c2d5e40e812e3e734903e26d8d01043853cce98f94&=&format=webp&quality=lossless"width="215" height="100" />
+<img src="https://i.pinimg.com/736x/11/38/ff/1138ffd39c3ef8bd69ad1b08c44bf291.jpg"width="215" height="100" />
 
  ![Github Views](https://views.igorkowalczyk.dev/api/badge/sasukefat?label=heart(๑≧▽≦๑)o!!&labelColor=FCF8F9&color=F9ECF0) ${{\color{#F6D4DF}\texttt{ " love for everyone... yay!! ❤︎⁠ "}}}$
 
