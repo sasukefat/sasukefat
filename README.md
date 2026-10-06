@@ -1,7 +1,7 @@
 ${{\color{#F7F1F3}\texttt{" hi — hello  " — my name is kacy 　,  I love joke bear so so soo much and I love Mell soo much *platonicqueerfriendship‎  }}}$ 
 
 <p align="center">  —> ❤︎ 
-  <img width="210" src="https://i.pinimg.com/736x/40/19/0c/40190cc44d6f6274b1496e12cc5c4502.jpg" align="right" width="210" height="150" /></p> 
+  <img width="210" src="https://i.pinimg.com/736x/40/19/0c/40190cc44d6f6274b1496e12cc5c4502.jpg" align="right" width="300" height="150" /></p> 
 
 ${{\color{#F9F0F1}\texttt{" Im pretty cool and I like Dr. House n supernatural n hannibal n uhh naruto "}}}$
 ${{\color{#F6D4DF}\texttt{ " !?⠀}}}$
